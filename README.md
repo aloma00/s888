@@ -1,1 +1,21 @@
 # s888
+http://www.caucar.com
+http://www.jmjmtt.com
+http://www.jjdaka.com
+http://www.567vvy.com
+http://www.55mmyy.com
+http://www.52bees.com
+http://www.499949.net
+http://www.dmdm99.com
+http://www.44x0x0.com
+http://www.44mmyy.com
+http://www.xiaof4.com
+http://www.aazuke.com
+http://www.9igogo.com
+http://www.99mmyy.com
+http://www.99nyny.com
+http://www.99yynn.com
+http://www.999kun.com
+http://www.913jjj.com
+http://www.910915.net
+http://www.calccc.com
